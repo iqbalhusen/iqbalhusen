@@ -18,4 +18,4 @@ Driven by **Astronomy**, **Physics**, **Photography**, and **Renewable Energy**.
 
 ---
 
-[iqbal.tech](https://www.iqbal.tech) • [LinkedIn](www.linkedin.com/in/iqbalhusn)
+[iqbal.tech](https://www.iqbal.tech) • [LinkedIn](https://www.linkedin.com/in/iqbalhusn)
